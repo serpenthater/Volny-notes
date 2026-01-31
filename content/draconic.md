@@ -1,0 +1,5 @@
+- Lizardfolk
+- Kobolds
+- Dragonborn
+- Humanoid x dragonsoul
+- Anything with dragon in its name

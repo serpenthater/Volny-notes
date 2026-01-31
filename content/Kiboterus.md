@@ -1,0 +1,1 @@
+Is the continent the [[Realms]] are placed on, so far its the only known continent. However there are rumors of a second continent by the name of [[Atoratius]]. 

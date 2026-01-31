@@ -1,0 +1,12 @@
+0. [[Lordo's real estate management]]
+1. [[Wang-Wang academy]]
+2. [[I'm sure it's not poison! John's Johnson's apothecary]] 
+3. [[Serena]] 
+4. [[Order of Munan Chohept Onast]]
+5. [[High life Casino]]
+6. [[Metal works?]]
+7. [[Dumplings, sake and more!]]
+8. [[The market of the wall]]
+9. [[Enlightend beans]]
+
+![[Finance map.png]]

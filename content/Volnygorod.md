@@ -1,0 +1,5 @@
+Is the trade capital of [[Emberi]], mostly due to its very fortunate location and on the mouth of a river. Due to which it has easy access to the other [[Realms]] and is able to transport the most wanted good deeper into the heart [[Emberi]]. 
+
+Due to this trade and wealth its a city that attracts a lot of people of different classes, ancestries and intentions. Due to which strangers and non-humans are common, so other humanoids aren't openly discriminated against, but there is a hint of distrust. Especially for the rarer humanoids, [[elves]] and [[dwarves]] can get by just fine, but rarer humanoids like [[dragonborns]] and non-humanoids like goblins have a bit more trouble.
+
+All the trade and minor tensions are a breeding ground for [[Gangs]] of which there are plenty. Due to its massive size the city is broken up further into smaller [[Districts]] which are then divided further into smaller [[areas]]. The most prominent and famous district being [[Azartnya Fortuna]] often shortend to [[Azartnya Fortuna|Azar]]

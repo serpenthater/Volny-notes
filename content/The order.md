@@ -1,0 +1,1 @@
+The order is a secret cult that is based on ancient knowledge, they take up kids and indoctrinate them into it. They have a location named [[Delaam]] in [[Volnygorod]] and used to have a location named [[Alef]] that burned down under mysterious circumstances. 

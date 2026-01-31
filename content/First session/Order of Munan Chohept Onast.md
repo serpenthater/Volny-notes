@@ -1,0 +1,1 @@
+The Order of Munan Chohept Onast is an organization in [[Volnygorod]] under the facade of a religion wherein disciples are unknowingly conned and brainwashed to forget about those important to them so that they could easily be manipulated. They worhsip their cult leader who goes by the name of [[Munan Chohept]] 

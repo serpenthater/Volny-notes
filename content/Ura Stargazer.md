@@ -1,0 +1,1 @@
+Right hand man of [[Taxo Redwood]] and is a loyal follower of his. He knows Taxo from the old days when he was still a criminal, after Taxo beat his ass and humbled his overly cocky persona he became one of his most loyal followers.

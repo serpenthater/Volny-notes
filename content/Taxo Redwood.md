@@ -1,0 +1,6 @@
+Leader/CEO of the [[Redwood]] organization, a semi gang that runs the [[Champion Area]] in [[Azartnya Fortuna]]. His right hand man is [[Ura Stargazer]].  He is a minotaur. 
+#### Personality 
+
+Tachibana displays a sophisticated and intelligent demeanor, and is a seemingly emotionless man; in reality, his appearance stems from holding in his continuous pain. He was initially a ruthless man due to his upbringing, but once his own criminal methods caused his sisters death. He regained his conscience, using whatever criminal methods he deemed necessary in order to honor her memory  rather than cause further harm. Taxo is a very honest and blunt man, yet he is a true ally for the [[Hero]]. Yet he is not able to be willing to risk his life for others, he is more than willing to use a large portion of his earnings to help the [[Hero]].  Despite his monumental success as a real estate broker, he is not pretentious with his wealth, too much. Only using the bare minimum essentials to keep up the appearances of a proper broker.
+
+#majorNPC #majorPlot 

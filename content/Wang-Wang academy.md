@@ -1,0 +1,1 @@
+An academy/public library owned by the great wizard [[Wang-Wang]] he is also its headmaster, yet the library is 

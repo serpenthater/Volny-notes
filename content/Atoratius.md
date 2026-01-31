@@ -1,0 +1,1 @@
+A rumoured second continent. Its not clear if any of the rumors have any meat to them, be the place real or not or weather its just a large remote island that surround the continent

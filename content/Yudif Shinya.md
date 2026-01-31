@@ -1,0 +1,9 @@
+He is the [[Revered Father of the House]] of the church of [[Ilmatar]], being the leader of the church and its attached monastery. Yet he is no true believer as he merely uses the church as an advanced way of further spreading the power of the [[Gangs]]. Using the different branches of the church as extensions of his own might. Its orphan side to recruit new blood, its giving of alms as a way to collect information from the homeless and the going on in the city. The donation they receive to launder the money from the gangs and paladins/clerics as magical muscle to stomp down upon any gangs that manage to get onto his bad side. 
+#### Personality 
+As one of the five leaders of the [[Gangs]], Yudif is a cold and manipulative man with a talent for obtaining results no matter who he has to use in order to achieve them. [[Dusha Waiba]] is the muscle of the family, and [[Titanar Aljiussu]] is its public face, Yudif is the business side, having a knack for economics and manipulation. He portrays a calm and rational nature initially. 
+
+However, his rational facade is undercut by a complete lack of empathy and hides a cruel superiority complex, forcing his subordinates, even his own oath brothers, to respect him through fear and threats. He is completely driven by his goal of not only reaching the top, but of carving out a legacy to surpass that of [[Yoi Talif]], and willing to spill as much blood as it takes to meet these ends.
+
+Despite his grand ambitions, Yudif is never one to rush things in his pursuit of power. He is more than content to remain the man behind his boss, completing tasks given to him and rising to the top through seemingly honest means. This, however, does not mean he is unwilling to resort to insubordination and conspiracy to achieve his goals. 
+
+#gang #brothers #Natasha#
